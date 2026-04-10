@@ -70,6 +70,6 @@ To request access, please include:
 	•	not redistribute the data
 	•	store the data securely
 
-📧 Contact email: zoezettazo@gmail.com
+📧 Contact email: e.zettazo@gmail.com
 
 Access decisions are made on a case-by-case basis.
